@@ -1,5 +1,4 @@
 # EFT-Quest-Bot
 EFT quest helper
 
-
-Not finished
+Who ever you are that is stealing my token # please be aware to please FUCK off. 
