@@ -1,4 +1,4 @@
 # EFT-Quest-Bot
 EFT quest helper
 
-Who ever you are that is stealing my token # please tell me how you did it! 
+Still working on it. Will be compleated when the game goes live. Thanks.
